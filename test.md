@@ -1,0 +1,1 @@
+applying what i learnt till now 
